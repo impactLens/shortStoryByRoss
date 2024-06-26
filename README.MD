@@ -5,7 +5,7 @@ The hot crushed stones from meteor shower is breaking the first invisible glass 
 
 The noiseless shield is just activated. The stones breaking sound waves are fighting loudly outside. To norm the crowd the augmented memories of script are playing in the member's community screen. After couple hours, the probability of survival score are uproar from 15%. 
 
-It's dark and orange at outside. “They are safe, let them circulate to the hemispheric safe-house”, commands the queen to her beast shell shocked dogs and hounds. All of a sudden, the rectangular shaped Whitehorse capsules are ready in series or parallel queues and stack of lines. 
+It's dark and orange at outside. “They are safe, let them circulate to the hemispheric safe-house authorization”, commands the queen to her beast shell shocked dogs and hounds. All of a sudden, the rectangular shaped Whitehorse capsules are ready in series or parallel queues and stack of lines. 
 
 “All stand by”, the vocal of navigation pods says. Each house floor becoming a tray leaving all others as they are. Rest of the house premises are careful scanned and analysed to make the living being life is space comfortable. It's a memoir for them if they want to experience this later or their status quo or make thing de facto. 
 

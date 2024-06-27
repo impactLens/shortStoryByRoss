@@ -2,7 +2,7 @@
 
 ## THE SURVIVAL PROB
 
-```scala
+```python3
 
 The hot crushed stones from meteor shower is breaking the first invisible glass shield of the region. The harmonic noise broke everyone's dreaming cognition. Panic spreads in all the eyes and words. The navigation and guardian satellite up-link are preparing for the bunker capsules to shift all the species except the guards and the frontier mechanical machines mounted by the order of the region and district of councils. The wolves are howling in the nearest reservoir forest lake. They smell fear and fresh meat. They love it most as the queen usually feed them those who does not meet her requirement to stay in her regime. 
 ```
